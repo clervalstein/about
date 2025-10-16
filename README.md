@@ -14,7 +14,7 @@ i like a lot of things but my main hyperfixations at the moment are frankenstein
 
 SOCIALS / INFO
 
-[strawpage](clervalsteincreature.straw.page), [atabook](clervalstein.atabook.org), [tellonym](tellonym.me/clervalstein), [patreon](patreon.com/clervalstein), [spacehey](spacehey.com/americore)
+[strawpage](clervalsteincreature.straw.page), [atabook](clervalstein.atabook.org), [tellonym](https://tellonym.me/clervalstein), [patreon](patreon.com/clervalstein), [spacehey](spacehey.com/americore)
 
 ![](https://64.media.tumblr.com/eedac006781b55be89368287c935aee9/bea578ccfee15413-13/s1280x1920/74d7ef66d58a68808a6d618b527b4b7594f4b874.gifv)
 
