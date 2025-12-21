@@ -1,16 +1,6 @@
 # about
 
-IDK HOW 2 CODE ON HERE FORGIVE ME OK
-
-![](http://i.picasion.com/gl/92/kPCZ.gif)
-
-HYDE / JEKYLL / ADAM / LOTUS + other names
-
-he/they/ey/xye + neos, she/her 4 friends only
-
-18 ☆ half french american w/welsh ancestry ☆ multi/contradictory religions ☆ music maker + artist ☆ green progressive democratic leftist + karl marx commie ☆ furry ☆ therian/otherkin ☆ age + pet regressor ☆ autistic w/PTSD, GAD and TBI
-
-i like a lot of things but my main hyperfixations at the moment are frankenstein, the strange case of dr. jekyll and mr. hyde and the glass scientists!
+WIP GIMME A MINUTE
 
 SOCIALS / INFO
 
