@@ -6,7 +6,7 @@
 
 **valentino** or *tux, angel dust, vivienne* !!
 
-he / moth / they / deer / she / pup + other neos
+he / moth / glitter / they / deer / she / pup + other neos
 
 19 <img src="https://64.media.tumblr.com/32dd4f9ad8395cdb3127871e7efc776c/0fae06e72c6fba65-b5/s75x75_c1/53ff2e291fc0fb5da692554e4799276a6bed57df.gifv"/> stupid sparklemoth sparklespider deer skunk w / CWD <img src="https://64.media.tumblr.com/8ac9eac039e0e23b88ffb48f55eb5a86/b52dafee84ee409a-dd/s75x75_c1/22e3e177e98d95a80cc86cb0228e8d4951f9fa4b.webp"/> selfship + otherkin <img src="https://64.media.tumblr.com/bd0e806c12cc9e0d8dbb8cb1adb92f7a/0fae06e72c6fba65-f5/s75x75_c1/dbf497540f5989e5bf886c2ddc5da534981105c0.gifv"/> disabled n chubby <img src="https://64.media.tumblr.com/8c6ef18d5f00fd1a536f32c91a42fe4b/4f8019aedef4a4fb-0f/s75x75_c1/368d15f68e7bf42d168aefc73868953455aa8a4c.gifv"/> ESSA / DSSA handler <img src="https://64.media.tumblr.com/135cb1d33df152c776e4689c7feeaf6d/66d0bcc9c166f09d-f3/s75x75_c1/82530d7cecac23f6398efb0777be4e163820bc51.gifv"/> reality shifter <img src="https://64.media.tumblr.com/6a56263fb3662707986e85d6c5c8c324/3e39c96e74c7c6e6-41/s75x75_c1/9283bfe8d08e305ce4327f07b6f77409454e1ef3.gifv"/> age + pet regressor <img src="https://64.media.tumblr.com/7c31071361bf13b73873fbca2e35442f/ad151dc1f5046fad-53/s75x75_c1/df4f4bf08cc9c46b2eb05b6946ad95507e188762.gifv"/> flag collector / coiner
 
