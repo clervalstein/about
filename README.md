@@ -1,34 +1,38 @@
-<img src="https://64.media.tumblr.com/7225d2dcf097a53e5d5c95b0ab0ff06b/14f88f55066f8a02-16/s640x960/bcc2af9a17c835711f26c2cbf8f1f64787cfb9d9.gifv"/>
+<img src="https://64.media.tumblr.com/69c414df0f3373f3d0809662098ce5e6/1539e010ce8fa124-ac/s2048x3072/73f60aad1fe542eec6c1c6c147dbf8562792f18d.pnj"/>
  
-<img src="https://i.postimg.cc/GtZjFXnr/text-(2).gif"/>
+<img src="https://i.postimg.cc/fRtNs3r3/text.gif"/>
 
-<img src="https://64.media.tumblr.com/7225d2dcf097a53e5d5c95b0ab0ff06b/14f88f55066f8a02-16/s640x960/bcc2af9a17c835711f26c2cbf8f1f64787cfb9d9.gifv"/>
+<img src="https://64.media.tumblr.com/8283675b1863125eaa3dd8bd2cef0311/1539e010ce8fa124-52/s2048x3072/e513165d567ba48380ae4bdddd99ba53e0908aba.pnj"/>
 
 **valentino** or *angel dust / vivienne* !!
 
-he / moth / glitter / they / deer / she / pup + other neos
+he / moth / glitter / they / deer / she / pup, pimp / pimps + other neos
 
-19 <img src="https://64.media.tumblr.com/cfe5090b0edf0e695621e051ee6a0135/fecbcebcddfc530b-9c/s75x75_c1/4e490efaab46f6e9ad6918c179371073c78b6e41.gifv"/> stupid cringe sparklemoth sparklespider deer w / CWD <img src="https://64.media.tumblr.com/0323b188ca08b63fc8fa198d51300ad8/9be8e9469964d127-e0/s75x75_c1/54f8b52d644bcb4fad1ec4a490297d61bc3277ed.gifv"/> selfship + otherkin <img src="https://64.media.tumblr.com/09d45186e8f68231d6052c7c91edb02c/ec2fe971b0fa2a3b-12/s75x75_c1/1762dd6ed0fa459a1c27c4e6e9ea327b50c9d189.gifv"/> disabled n chubby <img src="https://64.media.tumblr.com/1f42b31215cc2691237649eeb98f5ece/5cc024420d7d5ded-fe/s75x75_c1/b5212f7628e9c6923cb6be5c05878fcabf1f56af.gifv"/> DSSA handler <img src="https://64.media.tumblr.com/1e0275b2fa8c66d4e7069f099663701a/9fca6ec2d85c4a42-c5/s75x75_c1/85cb48a96a01454d25c81d94586ab3c4a7a1f76d.gifv"/> reality shifter <img src="https://64.media.tumblr.com/9066d4af5295b6b73b95f678367e93f6/f7483cd85c02932a-0a/s75x75_c1/3fa67d309ebbbc6ddc1ea764c671f116f64d69fc.gifv"/> age + pet regressor <img src="https://64.media.tumblr.com/90404deefbbd615b59cb3bbba856f337/f7483cd85c02932a-8c/s75x75_c1/faf08e5d4fd8b0db7352d0b463663dbf6f645f5c.gifv"/> flag collector / coiner  <img src="https://64.media.tumblr.com/5bfaeaa67bd81298557a2c4a4e78237e/f7483cd85c02932a-f9/s75x75_c1/c85dd4f33b8d836d3e5ec6b1224b4a56b970d35d.gifv"/> professional kink haver
+19 <img src="https://64.media.tumblr.com/6e38d21e8944b5c79a719dc39f6ba974/a6cb15267e245e7b-06/s75x75_c1/34b5b7b960dd60097e55566076236f529f6ea701.gifv"/> stupid cringe sparklemoth deer w / CWD <img src="https://64.media.tumblr.com/305eb2f82e020ba6a626202694e1b629/f9d8dc1afc55152e-81/s75x75_c1/8029c226443d021e2dbf165abb2696ebb1ccfc7a.gifv"/> selfship alterhuman thing <img src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv"/> disabled n chubby <img src="https://64.media.tumblr.com/d74ddc68b8caef133e47058e1feedc30/a7f667f0388cb686-6c/s75x75_c1/0dd9e86d1b09652f54a1b3c184c02e67d26b27aa.gifv"/> DSSA handler <img src="https://64.media.tumblr.com/81f029f7fe60b9ef987f6159c87ab416/e95425e74245493d-3b/s75x75_c1/4ef3ad83e353d1810de5a261fcfbc0f63a731d7e.gifv"/> reality shifter <img src="https://64.media.tumblr.com/30fd4954e77c5846054adba6e71dec8d/e95425e74245493d-84/s75x75_c1/efcc936c9aea944d4a7fa616090b47a727f2ce52.gifv"/> age + pet regressor <img src="https://64.media.tumblr.com/e93d2e996b768ded5a03cd9971258051/343e2a72052f2ac3-a0/s75x75_c1/e6052e51c7314c51427c040d38bbb740dafbc79b.gifv"/> flag collector / coiner  <img src="https://64.media.tumblr.com/8ff8a6f442a9cfd552c1341dd605c331/345ada277f272527-13/s75x75_c1/9db2604343cef5009ec927b379d59a5e99529d05.gifv"/> professional kink haver <img src="https://64.media.tumblr.com/9adbce9366cf763128cdfb8b29f86237/a7f667f0388cb686-f4/s75x75_c1/345d9283d2e1c75efebaf415762f234c6bf0038d.webp"/> dumb moth pimp ;_;
 
-**interests** !! <img src="https://64.media.tumblr.com/d95eae40b6b8987feae3ef8ff8dd73ef/f7483cd85c02932a-50/s75x75_c1/5e789669ea7f07ad546ee71f8dd1bd3b101e0201.gifv"/> hazbin hotel + helluva boss, animal hospital anomaly, 99NITF, politics + history, scary shawarma kiosk, bugs and animals, your favorite martian, dandys world, happy tree friends + more . . .
+certified bug luvr and animal hospital glazer
 
-<img src="https://64.media.tumblr.com/074ecfcc2af298bdc433b15fb262fd4e/14e219896f62dffd-76/s400x600/a41e07a27b7979cf6d7fcd75b2b32d94ed66e1ed.gifv"/>
+**interests** !! <img src="https://64.media.tumblr.com/48087bb9f170fd19bdbe1f60269f07a4/345ada277f272527-98/s75x75_c1/790c8d3189149bbcbc2c1c37b7d35a4b5c21b87a.gifv"/> hazbin hotel + helluva boss, animal hospital anomaly, 99NITF, politics + history, scary shawarma kiosk, bugs and animals, your favorite martian, dandys world, happy tree friends, anomaly cafe + more . . .
 
-**theriotypes** !! <img src="https://64.media.tumblr.com/177b2b391471063daac92dbe532b4abd/a66c95634c0b0556-24/s75x75_c1/b1f444636a0d8bd06f20cc59e45c3603c14a857d.gifv"/> sparklemoth, roe + white tailed deer, cecropia moth, reindeer, giant colorful cicada, fluffy dalmatian dog, pellucid hawk moth, carpenter bee, white rat/mouse, jumping spider, quagga, norwegian forest cat (calico), dodo bird, hoverfly, glasswing butterfly, firefly, katydid, papillon dog, giant ground sloth, thylacine, deaths head hawk moth, elephant hawk moth, striped skunk, northern long eared bat, house fly, evening bat, newfoundland dog, holland lop, cellar spider, giant leopard moth, southern flannel moth, tsetse fly, odorous house ant, leafcutter ant, red footed cannibalfly, bee fly, chantilly-tiffany cat, praying mantis, kauai o'o bird, bald faced hornet
+<img src="https://64.media.tumblr.com/3ce63298e770fcbcba4a992466a705f4/1539e010ce8fa124-0e/s2048x3072/9201845ea37eb378c697304b7a89889266a2267a.gifv"/>
+
+**theriotypes** !! <img src="https://64.media.tumblr.com/8da1ab6a2b8a7e81c5916802fe4b470a/345ada277f272527-22/s75x75_c1/e6cd9cedc994b505dedfdb761c4d8668aa61b2a9.gifv"/> sparklemoth, roe + white tailed deer, cecropia moth, reindeer, giant colorful cicada, fluffy dalmatian dog, pellucid hawk moth, carpenter bee, white rat/mouse, jumping spider, quagga, norwegian forest cat (calico), dodo bird, hoverfly, glasswing butterfly, firefly, katydid, papillon dog, giant ground sloth, thylacine, deaths head hawk moth, elephant hawk moth, striped skunk, northern long eared bat, house fly, evening bat, newfoundland dog, holland lop, cellar spider, giant leopard moth, southern flannel moth, tsetse fly, odorous house ant, leafcutter ant, red footed cannibalfly, bee fly, chantilly-tiffany cat, praying mantis, kauai o'o bird, bald faced hornet
 
 + Птахи (birds) by SUDNO, start over by LUMINAR, ritual by marshmello and new eyes by figmentarium animation (songkins)
 
-**fictionkins** !! <img src="https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv"/> angel dust, lute, abel, vox, twisted shelly, cruffle, stolas, valentino, rodger, twisted dandy, lucifer morningstar, arackniss, molly, vaggie, edward hyde, frankenstein's creature, rosie, benatar (YFM), henry jekyll, tobey mccallister, squirrelflight, goob, squirm, sniffles, henry clerval, emily, orb, jonathan harker, rachel pidgley, head nurse, maroon nurse, dr harlow, brightheart, sam, lisbeth / liz, flaky, petunia, cuddles, bluestar, flippy, splendid, sneaky
+**fictionkins** !! <img src="https://64.media.tumblr.com/88ed673542f888a2bc7b58287ffeefd5/0a00e9a777a336c9-46/s75x75_c1/89d4d4c99c5160c94fd50413ce4cdff27bef2f11.gifv"/> angel dust, lute, abel, vox, twisted shelly, cruffle, stolas, valentino, rodger, twisted dandy, lucifer morningstar, arackniss, molly, vaggie, edward hyde, frankenstein's creature, rosie, benatar (YFM), henry jekyll, tobey mccallister, squirrelflight, goob, squirm, sniffles, henry clerval, emily, orb, jonathan harker, rachel pidgley, head nurse, maroon nurse, dr harlow, brightheart, sam, lisbeth / liz, flaky, petunia, cuddles, bluestar, flippy, splendid, sneaky
 
-**F/Os** !! <img src="https://64.media.tumblr.com/12abb4dc5b7954cc48a0f3ec06e779a0/49bef966ad7197d0-0e/s75x75_c1/4be8bf8bd82754a397382c2ac30290785e47de41.gifv"/> carmilla carmine, vincent whittman, alastor, flyte, adam, zeezi, victor frankenstein, jasper kaylock, lilith morningstar, velvette, ron from accounting, husk, charlie morningstar, secret agent, striker, verosika mayday, beelzebub / queen bee
+**F/Os** !! <img src="https://64.media.tumblr.com/2deb72a8ea5a180e484c663338ab59c2/bbb6fcd205bbed93-2d/s75x75_c1/5cffb58e28538efbe4447d73d707b7d55f1b24b0.gifv"/> carmilla carmine, vincent whittman, alastor, flyte, adam, zeezi, victor frankenstein, jasper kaylock, lilith morningstar, velvette, ron from accounting, husk, charlie morningstar, secret agent, striker, verosika mayday, beelzebub / queen bee, sera, brusha
 
-<img src="https://64.media.tumblr.com/074ecfcc2af298bdc433b15fb262fd4e/14e219896f62dffd-76/s400x600/a41e07a27b7979cf6d7fcd75b2b32d94ed66e1ed.gifv"/>
+<img src="https://64.media.tumblr.com/3ce63298e770fcbcba4a992466a705f4/1539e010ce8fa124-0e/s2048x3072/9201845ea37eb378c697304b7a89889266a2267a.gifv"/>
 
 **DNI** : bigots, trumper / MAGA, zionists, angelval shippers, radqueers, proshippers, n@zis + similar fascist ideologies, AI supporters, ESSA / DSSA hate, here to sexualize my DSSAs.
 
 + unless we are friends / i interact first, id prefer if shedtwt and similar communities didnt interact. i am chubby with a larger chest and have had body issues in the past and i would rather not be reminded of them.
 
-bug haters are on VEEEEERY thin ice, fuck off if ur just gonna make jokes abt squishing bugs and / or dismiss my special interest
+bug haters are on VEEEEERY thin ice, fuck off if ur just gonna make jokes abt squishing bugs and / or dismiss my special interest. special interests are very important to autistic ppl such as myself and i do block people over this because to me it is that serious.
+
+on that note i tend to get defensive over my special interests bc they mean a lot to me
 
 i have a discomfort for non platonic huskerdust but shippers can interact
 
@@ -36,8 +40,12 @@ i don't support vivziepop, i'm just a hellaverse fan
 
 autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfunction, hypersexuality, ARFID and OAB. please interact with caution !! if i do something that upsets you then please tell me !
 
+i am a better listener than i am a responder, dont take it personal if i react to ur msg instead of reply !! just know that i am listening, i just dont know what to say in response
+
 i dont care for identity discourse of any kind, do not bring it here or on any of my socials #IDoNotCare
 
-<img src="https://64.media.tumblr.com/074ecfcc2af298bdc433b15fb262fd4e/14e219896f62dffd-76/s400x600/a41e07a27b7979cf6d7fcd75b2b32d94ed66e1ed.gifv"/>
+also i dont gaf about people having 'out there' but relatively harmless kinks / fetishes. do not argue with me about this because again I Do Not Care
 
-[revospring](https://revospring.net/glittermoths) ☆ [strawpage](https://valentinominophen.straw.page) ☆ [pinterest](https://pin.it/7y8uIRTUT) ☆ [instagram](https://instagram.com/valentinominophen) ☆ [twitter](https://x.com/@valminophen) ☆ [pronouns.cc](https://pronouns.cc/sparklemoths) ☆ [atabook](https://valentinominophen.atabook.org)
+<img src="https://64.media.tumblr.com/3ce63298e770fcbcba4a992466a705f4/1539e010ce8fa124-0e/s2048x3072/9201845ea37eb378c697304b7a89889266a2267a.gifv"/>
+
+[revospring](https://revospring.net/glittermoths) ☆ [strawpage](https://valentinominophen.straw.page) ☆ [pinterest](https://pin.it/7y8uIRTUT) ☆ [instagram](https://instagram.com/valentinominophen) ☆ [twitter](https://x.com/@valminophen) ☆ [pronouns.cc](https://pronouns.cc/sparklemoths) ☆ [atabook](https://valentinominophen.atabook.org) ☆ [guns lol](https://guns.lol/sparklemoths)
