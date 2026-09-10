@@ -4,7 +4,7 @@
 
 <img src="https://64.media.tumblr.com/8283675b1863125eaa3dd8bd2cef0311/1539e010ce8fa124-52/s2048x3072/e513165d567ba48380ae4bdddd99ba53e0908aba.pnj"/>
 
-**valentino** or *angel dust / vivienne* !!
+**valentino** or *angel dust, moxxie, vivienne* !!
 
 he / moth / glitter / they / deer / she / pup, pimp / pimps + other neos
 
@@ -20,9 +20,9 @@ certified bug luvr and animal hospital glazer
 
 + Птахи (birds) by SUDNO, start over by LUMINAR, ritual by marshmello and new eyes by figmentarium animation (songkins)
 
-**fictionkins** !! <img src="https://64.media.tumblr.com/88ed673542f888a2bc7b58287ffeefd5/0a00e9a777a336c9-46/s75x75_c1/89d4d4c99c5160c94fd50413ce4cdff27bef2f11.gifv"/> angel dust, lute, abel, vox, twisted shelly, cruffle, stolas, valentino, rodger, twisted dandy, lucifer morningstar, arackniss, molly, vaggie, edward hyde, frankenstein's creature, rosie, benatar (YFM), henry jekyll, tobey mccallister, squirrelflight, goob, squirm, sniffles, henry clerval, emily, orb, jonathan harker, rachel pidgley, head nurse, maroon nurse, dr harlow, brightheart, sam, lisbeth / liz, flaky, petunia, cuddles, bluestar, flippy, splendid, sneaky, vax
+**fictionkins** !! <img src="https://64.media.tumblr.com/88ed673542f888a2bc7b58287ffeefd5/0a00e9a777a336c9-46/s75x75_c1/89d4d4c99c5160c94fd50413ce4cdff27bef2f11.gifv"/> angel dust, lute, abel, vox, twisted shelly, cruffle, stolas, valentino, rodger, twisted dandy, lucifer morningstar, arackniss, molly, vaggie, edward hyde, frankenstein's creature, rosie, benatar (YFM), henry jekyll, tobey mccallister, squirrelflight, goob, squirm, sniffles, henry clerval, emily, orb, jonathan harker, rachel pidgley, head nurse, maroon nurse, dr harlow, brightheart, sam, lisbeth / liz, flaky, petunia, cuddles, bluestar, flippy, splendid, sneaky, vax, moxxie
 
-**F/Os** !! <img src="https://64.media.tumblr.com/2deb72a8ea5a180e484c663338ab59c2/bbb6fcd205bbed93-2d/s75x75_c1/5cffb58e28538efbe4447d73d707b7d55f1b24b0.gifv"/> carmilla carmine, vincent whittman, alastor, flyte, adam, zeezi, victor frankenstein, jasper kaylock, lilith morningstar, velvette, ron from accounting, husk, charlie morningstar, secret agent, striker, verosika mayday, beelzebub / queen bee, sera, brusha
+**F/Os** !! <img src="https://64.media.tumblr.com/2deb72a8ea5a180e484c663338ab59c2/bbb6fcd205bbed93-2d/s75x75_c1/5cffb58e28538efbe4447d73d707b7d55f1b24b0.gifv"/> carmilla carmine, vincent whittman, alastor, flyte, adam, zeezi, victor frankenstein, jasper kaylock, lilith morningstar, velvette, ron from accounting, husk, charlie morningstar, secret agent, striker, verosika mayday, beelzebub / queen bee, sera, brusha, millie
 
 <img src="https://64.media.tumblr.com/3ce63298e770fcbcba4a992466a705f4/1539e010ce8fa124-0e/s2048x3072/9201845ea37eb378c697304b7a89889266a2267a.gifv"/>
 
@@ -43,6 +43,8 @@ autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfuncti
 i am a better listener than i am a responder, dont take it personal if i react to ur msg instead of reply !! just know that i am listening, i just dont know what to say in response
 
 i dont care for identity discourse of any kind, do not bring it here or on any of my socials #IDoNotCare
+
+unless ur on my tiktok or instagram most of my sites are 18+ and are NOT intended for younger people
 
 also i dont gaf about people having 'out there' but relatively harmless kinks / fetishes. do not argue with me about this because again I Do Not Care
 
